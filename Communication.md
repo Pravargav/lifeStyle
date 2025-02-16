@@ -1,7 +1,7 @@
-1. Focus on Active Listening
-2. Acknowledge First, Then Share Your Perspective
-3. Use “Yes, And…” Instead of “But”
-4. Practice Curiosity
-5. Build on Common Ground
-6. Watch Your Tone and Body Language
-7. End on a Positive Note
+#-> Focus on Active Listening
+#-> Acknowledge First, Then Share Your Perspective
+#-> Use “Yes, And…” Instead of “But”
+#-> Practice Curiosity
+#-> Build on Common Ground
+#-> Watch Your Tone and Body Language
+#-> End on a Positive Note
