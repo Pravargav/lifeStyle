@@ -25,3 +25,5 @@
 # -> Don’t waste time on mid-range phones. Work hard, earn well, and buy what you want. Aim for top-tier models—phones and cars are status symbols today.
 
 # -> With allergies and asthma, choose hygienic food from trusted brands like KFC and Burger King. To afford quality, focus on earning and financial growth.
+
+# -> Stop watching a youtube romantic videos/ seducing crime stories strictly at your first thought.At second thought it's difficult to stop sex/romantic videos.At third or fourth level of sex videos your mind will be directed to telegram porn videos. It's most difficult to control your brain.Later thoughts are useless and controlling is impossible.
