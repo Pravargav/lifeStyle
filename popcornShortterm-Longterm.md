@@ -1,5 +1,4 @@
-## Analysis of the Case: Effects of Porn Addiction on Brain and Body
-## Your experience highlights both short-term and long-term negative effects of excessive porn consumption. 
+## 	<ins> Analysis of the Case: Effects of Porn Addiction on Brain and Body.Your experience highlights both short-term and long-term negative effects of excessive porn consumption. </ins>
 
 # -> Short-Term Effects (1–7 days after consumption)
 
