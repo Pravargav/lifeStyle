@@ -1,6 +1,6 @@
 # <ins> Analysis of the Case: Effects of Porn Addiction on Brain and Body. </ins>
 
-## -> Short-Term Effects (1–7 days after consumption)
+## -> Short-Term Effects (days of Consumption)
 
 `Brain Fog & Cognitive Decline – Difficulty concentrating, slower thinking, and lack of mental clarity.`
 
@@ -16,7 +16,7 @@
 
 `Physical Discomfort – Symptoms like muscle tension, eye strain, or even facial changes (e.g., wrinkles).`
 
-## -> Long-Term Effects (Weeks to Months of Addiction)
+## -> Long-Term Effects (Weeks to Months of Consumption)
 
 `Structural Brain Changes – Excessive dopamine release alters reward pathways, leading to compulsive behavior.`
 
