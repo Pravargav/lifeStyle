@@ -8,4 +8,4 @@
 
 # -> Don't consume COLD WATER OR SOFT DRINKS they also ruins 2-3 days with cough and fever.
 
-# -> It is false that PORN only ruin 1-2 days. It ruined my 6 days with extreme pain in brain & even unable solve a single basic coding problem.
+# -> It is false that PORN only ruin 1-2 days. It ruined my 6-7 days with extreme pain in brain & even unable solve a single basic coding problem.
