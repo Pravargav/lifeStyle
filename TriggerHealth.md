@@ -26,4 +26,4 @@
 
 # -> With allergies and asthma, choose hygienic food from trusted brands like KFC and Burger King. To afford quality, focus on earning and financial growth.
 
-# -> Stop watching a youtube romantic videos/ seducing crime stories strictly at your first thought.At second thought it's difficult to stop sex/romantic videos.At third or fourth level of sex videos your mind will be directed to telegram porn videos. It's most difficult to control your brain.Later thoughts are useless and controlling is impossible.
+# -> Avoid watching romantic or explicit content on YouTube as soon as the thought arises. The longer you dwell on it, the harder it becomes to resist. If you continue, your mind may seek more explicit content on other platforms(Telegram & Terabox) , making self-control increasingly difficult. It's best to stop at the very first thought to maintain discipline and focus.
