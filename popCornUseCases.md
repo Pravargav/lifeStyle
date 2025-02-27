@@ -5,9 +5,18 @@
 
 ```
 
-# ->  Consume porn when you are
+# ->  Don't consume porn near God or any pilgrimage place.
 
 ```
- extremely depressed / acheived nothing in a many days
+ You can watch it anywhere else. Just go outside your home, wear earphones, and watch.
 
 ```
+
+# -> Don't consume porn to check your fertility or to see if your penis is functioning properly.
+
+```
+If you have doubts, consult a doctor instead.
+
+```
+
+
