@@ -17,19 +17,9 @@
 # STEP6 = (KFC Chicken) =>
     Never watch  KFC because  they costed/wasted lots of time and its 100% useless. Like instagram ban KFC channels.You can watch any other content as much as you want.KFC channel is as useless and dangerous as porn videos.
 
------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+# STEP6 = (YouTube Shorts) =>
+    Never scroll YouTube Shorts because they waste lots of time and are 100% useless. Like Instagram restricting excessive scrolling, avoid Shorts for better focus. You can watch any other content as much as you want. YouTube Shorts are as useless and harmful as junk distractions.
+ 
 
-## Long-Term Effects of Excessive YouTube Shorts Scrolling  
-
-- **Reduced Attention Span** – Harder to focus on deep work.  
-- **Dopamine Dependency** – Craving instant gratification, less motivation.  
-- **Procrastination** – Wasting time instead of being productive.  
-- **Memory Decline** – Poor retention of meaningful knowledge.  
-- **Less Creativity** – Limits deep thinking & problem-solving.  
-- **Sleep Disruptions** – Blue light & overstimulation cause insomnia.  
-- **Anxiety & Fatigue** – Overload of fast content increases stress.  
-- **Social Disconnection** – Weakens real-life interactions.  
-- **Reduced Life Enjoyment** – Simple tasks feel boring.  
-- **Passive Consumption** – More watching, less creating.  
 
 
