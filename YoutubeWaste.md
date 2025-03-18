@@ -17,9 +17,15 @@
 # STEP6 = (KFC Chicken) =>
     Never watch  KFC because  they costed/wasted lots of time and its 100% useless. Like instagram ban KFC channels.You can watch any other content as much as you want.KFC channel is as useless and dangerous as porn videos.
 
-# STEP6 = (YouTube Shorts) =>
+# STEP7 = (YouTube Shorts) =>
     Never scroll YouTube Shorts because they waste lots of time and are 100% useless. Like Instagram restricting excessive scrolling, avoid Shorts for better focus. You can watch any other content as much as you want. YouTube Shorts are as useless and harmful as junk distractions.
- 
+
+# STEP8 = (Couple videos) =>
+    Never watch Couple videos because  they costed/wasted lots of time and its 100% useless. Like instagram ban Couple videos channels.You can watch any other content as much as you want.Couple videos channel is as useless and dangerous as porn videos.
+
+# STEP9 = (mouli food vlogs) =>
+    Never watch food vlogs videos because  they costed/wasted lots of time and its 100% useless. Like instagram ban food vlog videos channels.You can watch any other content as much as you want.Food vlog videos channel is as useless and dangerous as porn videos.
+
 
 
 
