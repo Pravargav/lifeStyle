@@ -26,6 +26,6 @@
 # STEP9 = (mouli food vlogs) =>
     Never watch food vlogs videos because  they costed/wasted lots of time and its 100% useless. Like instagram ban food vlog videos channels.You can watch any other content as much as you want.Food vlog videos channel is as useless and dangerous as porn videos.
 
-
-
+# STEP10 = (cricket related videos) =>
+    Never watch cricket related videos because  they costed/wasted lots of time and its 100% useless. Like instagram ban cricket related videos channels.You can watch any other content as much as you want.Cricket related videos channel is as useless and dangerous as porn videos.
 
