@@ -7,3 +7,5 @@
 # -> I used to meditate dialy using the application <ins> Insight Timer </ins> in mobile for many months.
 
 # -> I used to use my mobile in black and white <ins> gray scale mode </ins> for 1-2 years back.
+
+# -> I used to <ins> tick/check on calendar</ins> each day to hinder mobile usage for 1-2 months.
