@@ -4,4 +4,5 @@
 
 # -> Even though you are motivated be surround yourself with <ins>small context</ins> around you,not the <ins>global/worldwide context</ins> which gives fake/cheap dopamine.
 
+# -> I used to meditate dialy using the application <ins> Insight Timer </ins> in mobile for many months.
 
