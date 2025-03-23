@@ -9,3 +9,5 @@
 # -> I used to use my mobile in black and white <ins> gray scale mode </ins> for 1-2 years back.
 
 # -> I used to <ins> tick/check on calendar</ins> each day to hinder mobile usage for 1-2 months.
+
+# -> I lost everything due to one day usage of mobile.I lost my focus and accidentally clicked the submit button which costed me KPIT Job.
