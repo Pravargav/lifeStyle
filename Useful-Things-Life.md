@@ -13,3 +13,7 @@
 # -> I lost everything due to one day usage of mobile.I lost my focus and accidentally clicked the submit button which costed me KPIT Job.
 
 # -> I used to read books before sleep for 2-3 weeks.It gave me non-distracting ,mindful,dreamless deep sleep.
+
+# -> I used to<ins> believe in science in my school days</ins>.Then there was no issue because I used to rely on myself.But when I started<ins> begging god</ins> for everything my life got completeley shattered.
+
+# -> It's great benefit to have a <ins> friends batch at home</ins> and <ins> another friends batch at workplace</ins>.In my university days every student have one at home and one at college.But I do'nt have a friends batch at college which totally destroyed my college life and career.I only have one batch at home.
