@@ -9,3 +9,7 @@
 5)But every day I am listening to success stories everywhere.It stings.
 
 6)No you are telling lie my college everyone placed with good packages.Our's is tier 3 college.Imagine tier1 and 2 college packages.Where is the people like me who is completely disaster.They might be partially disaster.
+
+7)What you are saying is working hard makes my life better atleast once.Beacasue I want to live my life again.But I am scared of my lost critical thinking and basic thinking.
+
+8)But as I said I am too habituated to knowledge and theory for 7-8 years now .I don't know how smart work looks like
