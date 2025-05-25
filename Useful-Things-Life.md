@@ -18,4 +18,6 @@
 
 # -> It's great benefit to have a <ins> friends batch at home</ins> and <ins> another friends batch at workplace</ins>.In my university days every student have one at home and one at college.But I do'nt have a friends batch at college which totally destroyed my college life and career.I only have one batch at home.
 
-# -> Think before you make a habit.After making a habit it's almost impossible to retrack.
+# -> Think before you make a bad habit.After making a habit it's almost impossible to retrack.
+
+
