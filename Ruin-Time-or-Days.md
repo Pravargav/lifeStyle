@@ -9,3 +9,5 @@
 # -> Don't consume COLD WATER OR SOFT DRINKS they also ruins 3-4 days with cough and fever.
 
 # -> It is false that PORN only ruin 1-2 days. It ruined my 6-7 days with extreme pain in brain & even unable solve a single basic coding problem.
+
+# -> Don't get too much tension/stress or fear for 1-2 days.It will ruin 3-4 days of life with dangerous fever and cough.Once before 2-3 days before goldman sachs I used to get lot of tension,fear,stress and was stuck did't do anything.You won't immediately get fever/cold you will see effect starting after 4-5 days.
