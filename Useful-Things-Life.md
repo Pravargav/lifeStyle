@@ -20,6 +20,8 @@
 
 # -> Think before you make a bad habit.After making a habit it's almost impossible to retrack.
 
+# -> I have exprience of trusting god for a single day and distrust for 5-6 days.Finally it took me 23 years to learn and maturity that god does'nt exist.The concept of god is hypotehtical.
+
 
 
 
