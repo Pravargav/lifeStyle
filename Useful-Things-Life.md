@@ -22,6 +22,5 @@
 
 # -> I have exprience of trusting god for a single day and distrust for 5-6 days.Finally it took me 23 years to learn and maturity that god does'nt exist.The concept of god is hypotehtical.
 
-
-
+# -> The last words of indlas doctor santosh sir is do hardwork, mental execrices and physi cal exercises.ADHD is lifelong diesease.The genetics have low dopamine releasing cells and its not my mistake.But we can work hard to get less number of cells to release more dopamine as a ADHD patient.
 
