@@ -21,3 +21,5 @@
 11) But my health not cured and i also got diabetis due to my mental health and medication.
 
 12) Think in my perspective would anyone willing to live a life with all this.Even though i live life with doing small works what is the use of me to society and parents.What's the purpose with struggling health isssues and unable to land a software job in this competion world where ai is already taking jobs.
+
+13) But to be succed in any career we need to be healthy and meantally strong.What i came to know now is this all happend in my life due to my greed and selfish.I used to think once that i should earn crores and no one should beat me.Even though i realized now what's use everything got out of hands.Now ai replacing jobs and tough  competition in job market.
