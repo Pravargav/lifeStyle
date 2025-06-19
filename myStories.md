@@ -16,6 +16,8 @@
 
 9) I got addiction of mobile and over reliance of god since 6 years to copeup with my bad luck and pain.
 
-10)but how do i stop comparision with others who are far ahead of me once they were below me in studies.
+10) but how do i stop comparision with others who are far ahead of me once they were below me in studies.
 
-11)But my health not cured and i also got diabetis due to my mental health and medication.
+11) But my health not cured and i also got diabetis due to my mental health and medication.
+
+12) Think in my perspective would anyone willing to live a life with all this.Even though i live life with doing small works what is the use of me to society and parents.What's the purpose with struggling health isssues and unable to land a software job in this competion world where ai is already taking jobs.
