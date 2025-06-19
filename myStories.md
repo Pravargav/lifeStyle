@@ -14,4 +14,4 @@
 
 8) But as I said I am too habituated to knowledge and theory for 7-8 years now .I don't know how smart work looks like
 
-9) I got addiction of mobile and over reliance of god since 6 years to copeup with my bad luck and pain.
+9) I got addiction of mobile and over reliance of god since 6 years to copeup with my bad luck and pain.But my health not cured and i also got diabetis due to my mental health and medication.
