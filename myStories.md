@@ -13,3 +13,5 @@
 7) What you are saying is working hard makes my life better atleast once.Beacasue I want to live my life again.But I am scared of my lost critical thinking and basic thinking.
 
 8) But as I said I am too habituated to knowledge and theory for 7-8 years now .I don't know how smart work looks like
+
+9) I got addiction of mobile and over reliance of god since 6 years to copeup with my bad luck and pain.
