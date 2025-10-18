@@ -5,3 +5,5 @@
 -> oct 5 - due to overconfidence of learning everything i wathched ba pass on website
 
 -> oct 11 - due to free time and eating noodles the prior day my mental state was bad so i watched lady killer movie in mobile
+
+-> oct 15 - due to loneliness i.e no girl in my life. Also unable to solve leetcode problems.
