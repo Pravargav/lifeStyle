@@ -6,4 +6,4 @@
 
 -> oct 11 - due to free time and eating noodles the prior day my mental state was bad so i watched lady killer movie in mobile
 
--> oct 15 - due to loneliness i.e no girl in my life. Also unable to solve leetcode problems.
+-> oct 15 - due to loneliness i.e no girl in my life. Also unable to solve leetcode problems.It ended up 4 days in train journey and in home just for youtube romantic songs.
