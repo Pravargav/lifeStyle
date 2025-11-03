@@ -7,3 +7,5 @@
 -> oct 11 - due to free time and eating noodles the prior day my mental state was bad so i watched lady killer movie in mobile
 
 -> oct 15 - due to loneliness i.e no girl in my life. Also unable to solve leetcode problems.It ended up 4 days in train journey and in home just for youtube romantic songs.
+
+-> nov 1 - due to manager not accepted me for project and not approving timesheet.Including medicine affect and loneliness.Ended up doing a single leetcode problem "divisor game" for two days both saturday and sunday.
