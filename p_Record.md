@@ -13,3 +13,5 @@
 -> nov 1 - due to manager not accepted me for project and not approving timesheet.Including medicine affect and loneliness.Ended up doing a single leetcode problem "divisor game" for two days both saturday and sunday.
 
 -> nov 14 - due to early morning consumption of dude and virupaskha movies my mind got cloudy.Above that I stopped excercising dialy.These add up to my cravings for youtube romantic videos.Also dialy boring coding increase the chances of cravings.
+
+-> dec 21 - After eating egg fired rice in commercial street i got sick. So I have to watch to compensate.
