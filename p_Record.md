@@ -15,3 +15,5 @@
 -> nov 14 - due to early morning consumption of dude and virupaskha movies my mind got cloudy.Above that I stopped excercising dialy.These add up to my cravings for youtube romantic videos.Also dialy boring coding increase the chances of cravings.
 
 -> dec 21 - After eating egg fired rice in commercial street i got sick. So I have to watch to compensate.
+
+-> jan 10 - Afternoon after starting graph problems again on leetcode and sleeping as body is full of heat.
