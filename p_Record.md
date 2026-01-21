@@ -17,3 +17,5 @@
 -> dec 21 - After eating egg fired rice in commercial street i got sick. So I have to watch to compensate.
 
 -> jan 10 - Afternoon after starting graph problems again on leetcode and sleeping as body is full of heat.
+
+-> jan 21 - After eating tiger crunch bisucts to nullify the sugar effect
