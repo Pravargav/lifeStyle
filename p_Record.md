@@ -19,3 +19,5 @@
 -> jan 10 - Afternoon after starting graph problems again on leetcode and sleeping as body is full of heat.
 
 -> jan 21 - After eating tiger crunch bisucts to nullify the sugar effect
+
+-> jan 28 - I watched mastram series on terabox, due to happiness of completing the reverse kt in the afternoon.
