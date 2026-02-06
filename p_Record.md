@@ -21,3 +21,5 @@
 -> jan 21 - After eating tiger crunch bisucts to nullify the sugar effect
 
 -> jan 28 - I watched mastram series on terabox, due to happiness of completing the reverse kt in the afternoon.
+
+-> feb 5 - I was getting addicted again. Repeating consecutive days, check once.
